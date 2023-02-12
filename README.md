@@ -1,2 +1,2 @@
 # Macrogamer
-macro ahck for fortnite
+macro hack for fortnite
